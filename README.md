@@ -1,2 +1,10 @@
-# augmentCode-free-claude4
-用于无限续杯AugmentCode Vscode软件 真正意义的无限续杯 免费使用Claude4 augment-free claude4 For unlimited refills, use the AugmentCode Vscode software. This is the true meaning of unlimited refills. It's completely free to use. Claude4
+Augment Code无限续杯，augment独享帐号
+免费使用 Augment无限制比cursor更好
+无需自己注册，额度用完一键换号，自动过限制
+有使用文档
+每个帐号有300额度
+	
+额度用完，一键换号，秒切换，免重启
+	
+不绑定电脑设备，不限设备，可多设备同时使用
+#augment续杯 #augment #augment白嫖
